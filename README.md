@@ -1,4 +1,3 @@
-### Loading...
 
 ![](Dino_non-birthday_version.gif)
 
