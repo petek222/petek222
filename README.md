@@ -1,6 +1,6 @@
 ### Loading...
 
--![Dino-Gif](Dino_non-birthday_version.gif)
+![Dino-Gif](https://storage.googleapis.com/gweb-uniblog-publish-prod/original_images/Dino_non-birthday_version.gif)
 
 <!--
 **petek222/petek222** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
