@@ -1,5 +1,6 @@
 ### Loading...
 
+![Latin](https://fontmeme.com/permalink/200828/f54fc92ad600cfacef8682b68bce8ba8.png)
 ![Dino-Gif](https://storage.googleapis.com/gweb-uniblog-publish-prod/original_images/Dino_non-birthday_version.gif)
 
 <!--
