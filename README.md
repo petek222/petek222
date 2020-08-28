@@ -1,4 +1,3 @@
-### Loading...
 
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.blog.google%2Fproducts%2Fchrome%2Fchrome-dino%2F&psig=AOvVaw3eLUGFXxwTKvbW2rALGBr9&ust=1598712705076000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOjO-YiTvusCFQAAAAAdAAAAABAI)
 
