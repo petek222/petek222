@@ -1,4 +1,4 @@
-![Latin](https://fontmeme.com/permalink/201213/5f8fd50d5c9340533942cf0b62347ca4.png)
+![Latin](https://fontmeme.com/permalink/201213/2efdac4c169788022c3ab35fe4be25e2.png)
 <!-- ![Dino-Gif](https://storage.googleapis.com/gweb-uniblog-publish-prod/original_images/Dino_non-birthday_version.gif) -->
 
 <!--
